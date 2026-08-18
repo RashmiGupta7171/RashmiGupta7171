@@ -1,5 +1,5 @@
 # 💫 Hey I'm Rashmi
-I'm a 3rd Year Computer Science and Technology Student.<br>I'm an A.I. enthuasiast.
+I'm a 4th Year Computer Science and Technology Student.<br>I'm an A.I. enthuasiast.
 
 
 ## 🌐 Socials:
